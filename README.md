@@ -3,4 +3,5 @@ We are dedicated to making fun and thoughtful games with interesting stories. Ga
 Get in touch
 * [Twitter](https://twitter.com/StudioCourt)
 * [Instagram](https://www.instagram.com/kings_court_studio/)
-* [Email](officialkingscourtstudio@gmail.com)
+
+Or email us at officialkingscourtstudio@gmail.com
