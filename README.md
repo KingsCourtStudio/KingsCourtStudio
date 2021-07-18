@@ -1,3 +1,5 @@
+![LogoCircular](https://user-images.githubusercontent.com/87600381/126062445-c2276787-572a-48b4-9ca8-94d147685ffd.png)
+
 We are dedicated to making fun and thoughtful games with interesting stories. Games can help bring people together, and can show the best in all of us. Chess may be known as the game of kings. But we make the games for kings.
 
 Get in touch
